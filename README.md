@@ -9,4 +9,4 @@ I work at the intersection of BIM, automation, and data analytics, optimizing co
 
 💡 Enthusiast of AI, coding, and technological transformation in the construction industry.
 
-📫 Let's connect! [LinkedIn Profile]
+📫 Let's connect! [[LinkedIn Profile](https://www.linkedin.com/in/tiagomendonca/)]
